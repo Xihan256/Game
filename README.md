@@ -1,1 +1,1 @@
-# 2learn
+# Game of CUSGA SCUT
